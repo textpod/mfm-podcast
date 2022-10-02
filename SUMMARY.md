@@ -1,5 +1,6 @@
 # Table of contents
 
+* [Controversial Business Lessons From Napoleon, Edison, & Hitler (#369)](28QJ4y-QSrU.md)
 * [How Much We Make From A Podcast With 3 Million Downloads/Month (#368)](EpKgigxEoho.md)
 * [How Roger Federer Became The First Tennis Billionaire (#367)](jOHw_cLY7Kk.md)
 * [How I Spend $15,000/Year To Get & Stay Ripped (As An Entrepreneur) (#366)](HnW-xEgCego.md)
